@@ -13,7 +13,7 @@ nickname: ##bunny##/jules
 
 pronouns: he/him or she/her
 
-age / age range: 17
+age / age range: 17-19
 
 birthday: Oct 9th
 
