@@ -10,29 +10,49 @@ e !! " ♡
 🥕 ୨୧ about the bunny !!
 
 nickname: ##bunny##/jules
+
 pronouns: he/him or she/her
+
 age / age range: 17
+
 birthday: Oct 9th
+
 gender: FTM trans-masc
+
 timezone: EST
+
 personality: enfp
+
 likes: x-men, marvel in general..but heavy on xmen
+
 dislikes: my DNI list and ppl who judgy
+
 hobbies: singing, collecting,
+
 reading and drawing.
 
 🐇 ୨୧ pony town burrow !!
 
 display name: Ughjules
+
 main pony: NIghtcrawler x-men cos pony
+
 usual location: right by the cafe usually.
+
 status: ONLINE
+
 interaction: encouraged
+
 whispers: Encouraged
+
 friend requests:
+
 cuddles + hides (c+h): Y
+
 boops / touch: Heavy Y
+
 roleplay: Close friends 
+
 
 🎀 ୨୧ before you hop over !!
 
@@ -40,32 +60,52 @@ roleplay: Close friends
 
 DNI criteria:
 Ship real people romantically without their consent
+
 Romanticize real-life abuse or abusive relationships
+
 Harass people over fictional ships or characters
+
 Attack people for their interests or boundaries
+
 Excuse real-life abusive behavior
+
 Support pedophilia or the sexual exploitation of minors
+
 Create or share content that sexualizes minors
+
 Force your ships or headcanons onto others
+
 Send unwanted explicit content
+
 Are involved in fandom harassment or ship wars
+
 Proshippers / people who defend problematic fictional ships
+
 People who ignore content boundaries
+
 People who harass others over fictional content
+
 Anyone who refuses to respect my DNI im not scared to block.
+
 
 ૮₍ ˶ᵔ ᵕ ᵔ˶ ₎ა 
 
 Please respect my boundaries. I don't want to argue about my criteria, and I reserve the right to block anyone I'm uncomfortable interacting with.
+
 PT is a comfort and coping mechanism for me.
 
 🧸 ୨୧ boundaries & comfort !!
 
 jokes / teasing: okay if light
+
 nicknames: anyone can call me bunny, jules is a bit personal tho.
+
 venting: Y
+
 shipping: Y
+
 physical interactions in PT: Y
+
 
 🍓 ୨୧ things i adore !!
 
@@ -90,7 +130,9 @@ Rivals and RDR2 as i play both daily.
 🐾 ୨୧ my little friend garden !!
 
 friends: Faust, Bella, Danny. and more to come i hope.
+
 other socials: disc, insta and snap (pls ask for discord)
+
 preferred contact: discord
 
 🥛 ୨୧ extra bunny notes !!
