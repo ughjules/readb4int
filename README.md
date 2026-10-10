@@ -1,7 +1,7 @@
 # readb4int
 .............
 ୨୧ welcome to my burrow !! 🐇
-♡ " put a favorite quote here !! " ♡
+♡ " "There ain't no cure for who you are, I reckon I am my powers and the good they can do for my friends and for the whole world. I reckon maybe I can live with that after all." e !! " ♡
 ૮₍ ˶ᵔ ᵕ ᵔ˶ ₎ა hii hii !! welcome to my little burrow !! this is my info page for pony town, my boundaries, and my dni list !!
 
 ꒰ა ♡ ໒꒱ ───────────── ꒰ა ♡ ໒꒱
